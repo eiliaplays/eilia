@@ -2,6 +2,26 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-14 14:35 IR
+- 🎬 (Part) [EsDeeKid_LIVE_@_Rolling_Loud_Orlando_2026_[FULL_SET]_part_000.mp4](https://github.com/eiliaplays/eilia/raw/main/dl/EsDeeKid_LIVE_%40_Rolling_Loud_Orlando_2026_%5BFULL_SET%5D_part_000.mp4) `77.6MB`
+
+- 🎬 (Part) [EsDeeKid_LIVE_@_Rolling_Loud_Orlando_2026_[FULL_SET]_part_001.mp4](https://github.com/eiliaplays/eilia/raw/main/dl/EsDeeKid_LIVE_%40_Rolling_Loud_Orlando_2026_%5BFULL_SET%5D_part_001.mp4) `79.6MB`
+
+- 🎬 (Part) [EsDeeKid_LIVE_@_Rolling_Loud_Orlando_2026_[FULL_SET]_part_002.mp4](https://github.com/eiliaplays/eilia/raw/main/dl/EsDeeKid_LIVE_%40_Rolling_Loud_Orlando_2026_%5BFULL_SET%5D_part_002.mp4) `82.8MB`
+
+- 🎬 (Part) [EsDeeKid_LIVE_@_Rolling_Loud_Orlando_2026_[FULL_SET]_part_003.mp4](https://github.com/eiliaplays/eilia/raw/main/dl/EsDeeKid_LIVE_%40_Rolling_Loud_Orlando_2026_%5BFULL_SET%5D_part_003.mp4) `69.0MB`
+
+- 🎬 (Part) [EsDeeKid_LIVE_@_Rolling_Loud_Orlando_2026_[FULL_SET]_part_004.mp4](https://github.com/eiliaplays/eilia/raw/main/dl/EsDeeKid_LIVE_%40_Rolling_Loud_Orlando_2026_%5BFULL_SET%5D_part_004.mp4) `74.9MB`
+
+- 🎬 (Part) [EsDeeKid_LIVE_@_Rolling_Loud_Orlando_2026_[FULL_SET]_part_005.mp4](https://github.com/eiliaplays/eilia/raw/main/dl/EsDeeKid_LIVE_%40_Rolling_Loud_Orlando_2026_%5BFULL_SET%5D_part_005.mp4) `64.6MB`
+
+- 🎬 (Part) [EsDeeKid_LIVE_@_Rolling_Loud_Orlando_2026_[FULL_SET]_part_006.mp4](https://github.com/eiliaplays/eilia/raw/main/dl/EsDeeKid_LIVE_%40_Rolling_Loud_Orlando_2026_%5BFULL_SET%5D_part_006.mp4) `66.3MB`
+
+- 🎬 (Part) [EsDeeKid_LIVE_@_Rolling_Loud_Orlando_2026_[FULL_SET]_part_007.mp4](https://github.com/eiliaplays/eilia/raw/main/dl/EsDeeKid_LIVE_%40_Rolling_Loud_Orlando_2026_%5BFULL_SET%5D_part_007.mp4) `37.3MB`
+
+---
+
+
 ### 📅 2026-05-14 14:13 IR
 - 🎬 (Part) [Lucy_Bedroque_LIVE_@_Rolling_Loud_Orlando_2026_[FULL_SET]_part_000.mp4](https://github.com/eiliaplays/eilia/raw/main/dl/Lucy_Bedroque_LIVE_%40_Rolling_Loud_Orlando_2026_%5BFULL_SET%5D_part_000.mp4) `42.5MB`
 
