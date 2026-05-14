@@ -2,6 +2,22 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-14 14:13 IR
+- 🎬 (Part) [Lucy_Bedroque_LIVE_@_Rolling_Loud_Orlando_2026_[FULL_SET]_part_000.mp4](https://github.com/eiliaplays/eilia/raw/main/dl/Lucy_Bedroque_LIVE_%40_Rolling_Loud_Orlando_2026_%5BFULL_SET%5D_part_000.mp4) `42.5MB`
+
+- 🎬 (Part) [Lucy_Bedroque_LIVE_@_Rolling_Loud_Orlando_2026_[FULL_SET]_part_001.mp4](https://github.com/eiliaplays/eilia/raw/main/dl/Lucy_Bedroque_LIVE_%40_Rolling_Loud_Orlando_2026_%5BFULL_SET%5D_part_001.mp4) `44.1MB`
+
+- 🎬 (Part) [Lucy_Bedroque_LIVE_@_Rolling_Loud_Orlando_2026_[FULL_SET]_part_002.mp4](https://github.com/eiliaplays/eilia/raw/main/dl/Lucy_Bedroque_LIVE_%40_Rolling_Loud_Orlando_2026_%5BFULL_SET%5D_part_002.mp4) `43.3MB`
+
+- 🎬 (Part) [Lucy_Bedroque_LIVE_@_Rolling_Loud_Orlando_2026_[FULL_SET]_part_003.mp4](https://github.com/eiliaplays/eilia/raw/main/dl/Lucy_Bedroque_LIVE_%40_Rolling_Loud_Orlando_2026_%5BFULL_SET%5D_part_003.mp4) `52.6MB`
+
+- 🎬 (Part) [Lucy_Bedroque_LIVE_@_Rolling_Loud_Orlando_2026_[FULL_SET]_part_004.mp4](https://github.com/eiliaplays/eilia/raw/main/dl/Lucy_Bedroque_LIVE_%40_Rolling_Loud_Orlando_2026_%5BFULL_SET%5D_part_004.mp4) `45.8MB`
+
+- 🎬 (Part) [Lucy_Bedroque_LIVE_@_Rolling_Loud_Orlando_2026_[FULL_SET]_part_005.mp4](https://github.com/eiliaplays/eilia/raw/main/dl/Lucy_Bedroque_LIVE_%40_Rolling_Loud_Orlando_2026_%5BFULL_SET%5D_part_005.mp4) `21.2MB`
+
+---
+
+
 ### 📅 2026-05-14 14:05 IR
 - 🎬 (Part) [Prettifun_LIVE_@_Rolling_Loud_Orlando_2026_Full_Set_part_000.mp4](https://github.com/eiliaplays/eilia/raw/main/dl/Prettifun_LIVE_%40_Rolling_Loud_Orlando_2026_Full_Set_part_000.mp4) `78.5MB`
 
